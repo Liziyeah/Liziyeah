@@ -1,5 +1,5 @@
 - ˚ʚ♡ɞ˚ Hi, I’m @Liziyeah ˚ʚ♡ɞ˚
-- ˚ʚ♡ɞ˚ I'm doing my best to get and active and empirical learning and improvement 
+- ˚ʚ♡ɞ˚ I'm doing my best to get an active and empirical learning and improvement 
 - ˚ʚ♡ɞ˚ I’m currently learning Web Development and Design :3
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⣀⣤⣤⣴⠶⠶⠶⠶⠦⣤⣤⣀⣀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⣠⣶⠾⠟⣿⣿⠾⠛⠉⠁⠀⠀⠀⠀⠀⠀⠀⠀⠀⠉⠙⠻⢶⣤⣠⣤⣤⣄⣀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
